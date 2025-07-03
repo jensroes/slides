@@ -1,1 +1,3 @@
-# slides
+# slides from various occasions
+
+enjoy!
